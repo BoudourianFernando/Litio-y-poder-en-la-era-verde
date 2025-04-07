@@ -1,1 +1,2 @@
 # Litio-y-poder-en-la-era-verde
+El litio ya no es solo un recurso: es el eje de nuevas tensiones globales. Mientras China lidera la refinación y abastece a sus gigantes tecnológicos, Argentina, Bolivia y Chile concentran las reservas. Estados Unidos y Europa redoblan políticas para reducir su dependencia. La eficiencia queda atrás: la autonomía energética y la seguridad estratégica pasan al frente.
